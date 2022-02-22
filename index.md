@@ -18,6 +18,8 @@
 
 #### Лекции
 
+[Лекционные материалы](https://konstantin-morenko.ru/phd-commercialization-book/)
+
 
 #### Литература и ссылки по теме
 
